@@ -1,1 +1,1 @@
-# Hi there, I'm Chiomna Nwafor
+# Hi there, I'm Chioma Nwafor
